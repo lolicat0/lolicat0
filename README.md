@@ -40,7 +40,7 @@
 
 ## 📫 Let's Connect
 - 📧 Email: [swathijm0528@gmail.com]  
-- 🔗 LinkedIn: [ linkedin.com/in/swathi-j-022991320](#)  
+- 🔗 LinkedIn: [ linkedin.com/in/Swathijayavel](#)  
 
 ---
 
